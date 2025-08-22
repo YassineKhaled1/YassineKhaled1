@@ -1,6 +1,6 @@
 # ✨ Yassine Khaled | ياسين خالد
 
-![Book Cover](https://pubhtml5.com/hsfan/hsfan/files/large/1.jpg)
+![Book Cover](https://i.imgur.com/abc123.png)
 > 📘 مؤلف كتاب "من الميتم إلى النور" – رحلة واقعية من الظلام إلى النور  
 > 🟢 اقرأه مجانًا: [اضغط هنا](https://pubhtml5.com/homepage/hsfan/)
 
