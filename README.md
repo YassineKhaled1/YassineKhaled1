@@ -90,7 +90,8 @@
 ## 📬 للتواصل
 - 🌐 الموقع الرسمي: [yassinekhaled.carrd.co](https://yassinekhaled.carrd.co)  
 - 📘 الكتاب: [من الميتم إلى النور](https://pubhtml5.com/homepage/hsfan/)  
-- 📱 تابعني على: [X](https://x.com/yassinekhaled) | [LinkedIn](https://linkedin.com/in/yassinekhaled)  
+- 📱 تابعني على: [X](https://x.com/Yassine__khaled) | [LinkedIn](www.linkedin.com/in/yassine-khaled-212636359)
+ 
 
 ---
 
